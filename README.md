@@ -1,6 +1,6 @@
 # M78星云机场官网地址
 
-最新地址：[m78star.cloud](https://m78star.cloud/#/register?code=GPg8eNDK)
+最新地址：[m78star.cloud](https://www.m78.pro/#/register?code=GPg8eNDK)
 
 ## M78星云介绍
 
